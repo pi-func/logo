@@ -1,4 +1,4 @@
-# PIfunc Brand Guidelines
+# [PIfunc Brand Guidelines](http://logo.pifunc.com)
 
 ## Brand Identity
 
